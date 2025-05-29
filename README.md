@@ -16,4 +16,4 @@
 
 ## 📫 تواصل معي
 ‏- GitHub: [amal001Aa](https://github.com/amal001Aa)
-‏- Email: amal@example.com
+‏- Email: amal0002@icloud.com
